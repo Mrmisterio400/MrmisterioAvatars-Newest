@@ -1,2 +1,0 @@
-# MrmisterioAvatars-Newest
-New avtras
